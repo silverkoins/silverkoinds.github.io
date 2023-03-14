@@ -1,1 +1,1 @@
-# silverkoinds.github.io
+# silverkoins.github.io
